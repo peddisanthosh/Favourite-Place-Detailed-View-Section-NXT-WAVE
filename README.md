@@ -1,0 +1,1 @@
+# Favourite-Place-Detailed-View-Section-NXT-WAVE
